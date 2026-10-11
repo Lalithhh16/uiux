@@ -1,2 +1,0 @@
-# uiux
-shoe designing
